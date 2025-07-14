@@ -6,5 +6,5 @@ Hey there! I am a former K-12 teacher who now supports large research teams at t
 
 Here are ways you can contact me:
 * [Email](mailto:Rachel.Lieber@colorado.edu)
-* [LinkedIn]https://www.linkedin.com/in/rachel-lieber-35a60345/
+* [LinkedIn](https://www.linkedin.com/in/rachel-lieber-35a60345/)
 
